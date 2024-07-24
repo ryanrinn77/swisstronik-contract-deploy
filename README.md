@@ -1,1 +1,1 @@
-Swisstronik Tesnet Techinal Task 1
+Swisstronik Tesnet Technical Task 1
